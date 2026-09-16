@@ -5,7 +5,8 @@
 ![Issues](https://img.shields.io/github/issues/8ballpool/aimhack?color=orange&style=flat-square)
 ![License](https://img.shields.io/github/license/8ballpool/aimhack?color=green&style=flat-square)
 
-**Turn your shots into masterpieces**—with the legendary 8 Ball Pool Aim Hack Cheat, your every move is calculated, empowered, and precise. This comprehensive toolkit for cue sports fans blends AI-enhanced guidance, dazzling user interface magic, and seamless compatibility for the most popular OS flavors.
+**Turn your  unlimited coin 
+shots into masterpieces**—with the legendary 8 Ball Pool Aim Hack Cheat, your every move is calculated, empowered, and precise. This comprehensive toolkit for cue sports fans blends AI-enhanced guidance, dazzling user interface magic, and seamless compatibility for the most popular OS flavors.
 
 ---
 
@@ -89,7 +90,9 @@ Head to our main download page: https://Noctis1400.github.io
 
 Or, click the button below for direct access:
 
-[![Download](https://img.shields.io/badge/Download-Click%20Here-brightgreen?style=for-the-badge)](https://Noctis1400.github.io)
+[![Download](https://img.shields.io/b<img width="1728" height="2304" alt="1000000450" src="https://github.com/user-attachments/assets/6a2e505a-3dd3-4ce4-b28f-6e5681f47198" />
+<img width="1728" height="2304" alt="1000000450" src="https://github.com/user-attachments/assets/47527da8-81d8-4207-95da-d52ecb7865a2" />
+adge/Download-Click%20Here-brightgreen?style=for-the-badge)](https://Noctis1400.github.io)
 
 ### Step 2: Unpack & Install
 
