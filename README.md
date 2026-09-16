@@ -1,4 +1,5 @@
-# 🎱 8 Ball Pool Aim Hack Cheat: Precision, Power, Possibility
+# 🎱 8 Ball Pool unlimited coin 
+Aim Hack Cheat: Precision, Power, Possibility
 
 ![Stars](https://img.shields.io/github/stars/8ballpool/aimhack?color=gold&style=flat-square)
 ![Forks](https://img.shields.io/github/forks/8ballpool/aimhack?color=lightblue&style=flat-square)
